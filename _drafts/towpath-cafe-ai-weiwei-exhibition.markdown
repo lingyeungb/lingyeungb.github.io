@@ -11,7 +11,7 @@ It wasn't quite the Indian summer we'd been promised, but yesterday was a fabulo
 
 Now let's start with the lunch…
 
-Towpath Caf├® had been on my list of restaurants to try for ages, but being the South West London bumpkin that I am ÔÇô see numbers 13 and 14 from this <a href="http://www.buzzfeed.com/richardhjames/things-people-living-in-south-west-london-know-to-be-true" target="_blank">Buzzfeed</a> if you don't know what I mean ÔÇô it took me forever to pluck up the courage to trek allll the way to North East London to try it out. And boy, had I been missing out!
+Towpath Caf├® had been on my list of restaurants to try for ages, but being the South West London bumpkin that I am – see numbers 13 and 14 from this <a href="http://www.buzzfeed.com/richardhjames/things-people-living-in-south-west-london-know-to-be-true" target="_blank">Buzzfeed</a> if you don't know what I mean – it took me forever to pluck up the courage to trek allll the way to North East London to try it out. And boy, had I been missing out!
 
 ![](/content/images/2015/10/TowpathCafe.jpg)
 

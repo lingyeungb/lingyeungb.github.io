@@ -21,4 +21,4 @@ From talking to many of you we understand that finding old posts in the admin ar
 
 Questions? Comments? Send us a tweet [@TryGhost](https://twitter.com/tryghost)
 
-Oh, and yes ÔÇô you can safely delete this draft post!
+Oh, and yes – you can safely delete this draft post!

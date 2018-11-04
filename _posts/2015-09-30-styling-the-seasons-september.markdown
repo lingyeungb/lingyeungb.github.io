@@ -19,7 +19,7 @@ So what does September mean to me…?
  
 I can never quite make my mind up about September. Days are getting shorter, my favourite blooms are long past their best, summer holiday seems like distant history, and there's almost an air of uncertainty as everyone settles into their new routines. But at the same time, I love the crispness in the air, the soft golden glow at sunset, the ever-changing colours in the garden, and welcoming new challenges ahead.
  
-September also - often, depending on the Lunar calendar - hosts one of the most celebrated Chinese festivals. Mid Autumn Festival is held on the 15th day of the eighth month in the Chinese calendar and coincides with a full moon ÔÇô in this year's case, a super moon and lunar eclipse! ÔÇô so it's also known as the Moon Festival.
+September also - often, depending on the Lunar calendar - hosts one of the most celebrated Chinese festivals. Mid Autumn Festival is held on the 15th day of the eighth month in the Chinese calendar and coincides with a full moon – in this year's case, a super moon and lunar eclipse! – so it's also known as the Moon Festival.
  
 It's a bit like Thanksgiving really. Families and friends gather to celebrate and give thanks for the harvest. Children play with brightly lit lanterns, and everyone eats mooncakes and watches the moon together as a symbol of harmony, completeness and unity. Mooncakes are round Chinese pastries, typically filled with sweet lotus seed paste and salted duck egg yolks. They are super delicious but very rich, so you often wash them down with a good cup of Chinese tea.
  

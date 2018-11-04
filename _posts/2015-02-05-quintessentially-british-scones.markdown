@@ -33,7 +33,7 @@ Jam and clotted cream, to serve
 
 2. Put the milk into a jug and heat in the microwave for about 30 secs until warm, but not hot. Add the vanilla and lemon juice, then set aside for a moment. Put a baking sheet in the oven.
 
-3. Make a well in the dry mix, then add the liquid and combine it quickly with a cutlery knife ÔÇô it will seem pretty wet at first. Scatter some flour onto the work surface and tip the dough out. Dredge the dough and your hands with a little more flour, then fold the dough over 2-3 times until it's a little smoother. Pat into a round about 4cm deep.
+3. Make a well in the dry mix, then add the liquid and combine it quickly with a cutlery knife – it will seem pretty wet at first. Scatter some flour onto the work surface and tip the dough out. Dredge the dough and your hands with a little more flour, then fold the dough over 2-3 times until it's a little smoother. Pat into a round about 4cm deep.
 
 4. Take a 5cm cutter (smooth-edged cutters tend to cut more cleanly, giving a better rise) and dip it into some flour. Plunge into the dough, then repeat until you have four scones. By this point you'll probably need to press what's left of the dough back into a round to cut out another four. Brush the tops with beaten egg, then carefully place onto the hot baking tray.
 
