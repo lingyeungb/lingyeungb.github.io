@@ -65,7 +65,7 @@
 					{% endif %}
 							
 					<h2 class="post-title"><a href="{{ page.url }}">{{ page.title }}</a></h2>
-					<span class="post-meta"><time datetime="{{ page.date | date: "%b %-d, %Y" }}">{{ page.date | date: "%b %-d, %Y" }}</time></span>
+					<span class="post-meta"><time datetime="{{ page.date | date_to_xmlschema }}">{{ page.date | date: "%-d %B %Y" }}</time></span>
 				</header>
 
 				<section class="post-content">		   
