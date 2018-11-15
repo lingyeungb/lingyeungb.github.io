@@ -49,6 +49,6 @@ For the same hygiene reasons, I always bring a scarf or jacket onto the plane co
 
 Whoever invented dry shampoo deserves a prize! 
 
-If you have fine hair like mine that gets limp and greasy easily, this magical stuff will instantly make you look presentable after a long flight! I've only ever used the TRESemm├® range but friends tell me Batiste ones are great, too!
+If you have fine hair like mine that gets limp and greasy easily, this magical stuff will instantly make you look presentable after a long flight! I've only ever used the TRESemmé range but friends tell me Batiste ones are great, too!
 
 So that's it, those are my top travel tips! What are yours?

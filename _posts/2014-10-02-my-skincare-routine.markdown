@@ -20,7 +20,7 @@ I suffered from Eczema as a teenager, so apart from my best friend aka hydrocort
 
 ![](/content/images/2014/10/photo-1.JPG)
 
-In the morning, I wash my face with this <a href="http://www.boots.com/en/Simple-Kind-To-Skin-Vital-Vitamin-Foaming-Cleanser-150ml_1160720/" target="_blank">foaming cleanser from Simple</a>, followed by <a href="http://www.boots.com/en/Simple-Kind-To-Skin-Soothing-Facial-Toner-200ml_1523/" target="_blank">facial toner </a>from the same Kind To Skin range, and this <a href="http://www.boots.com/en/Vichy-Aqualia-Thermal-Light-Pot-50ml_1457243/" target="_blank">Vichy Aqualia Thermal Light cream</a> that my school friend introduced me to a few years ago when she worked at L'Or├®al. 
+In the morning, I wash my face with this <a href="http://www.boots.com/en/Simple-Kind-To-Skin-Vital-Vitamin-Foaming-Cleanser-150ml_1160720/" target="_blank">foaming cleanser from Simple</a>, followed by <a href="http://www.boots.com/en/Simple-Kind-To-Skin-Soothing-Facial-Toner-200ml_1523/" target="_blank">facial toner </a>from the same Kind To Skin range, and this <a href="http://www.boots.com/en/Vichy-Aqualia-Thermal-Light-Pot-50ml_1457243/" target="_blank">Vichy Aqualia Thermal Light cream</a> that my school friend introduced me to a few years ago when she worked at L'Oréal. 
 
 I know I should be using SPF everyday, but honestly, when my sun exposure during the week is limited to the 6 minute walk between my house and the train station, I think you can cut me a little slack! ;) I think I'm actually ready to try a new face cream though, so perhaps I should look for one with SPF!
 

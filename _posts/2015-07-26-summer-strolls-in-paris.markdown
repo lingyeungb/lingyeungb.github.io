@@ -57,15 +57,15 @@ After all that walking, it was clearly time for food again... ;)
 
 <a href="http://www.ag-restaurant.fr/" target="_blank">Restaurant AG</a> has been named one of the top 10 newcomers on the Parisian foodie scene, and I am not the least bit surprised! 
 
-We went for the 5 course Menu d├®couverte with (the most generous) wine pairing coz when in Paris, that's what one does... right? The meal started with the most delicious melt-in-the-mouth parmesan and squid ink biscuits but they were so quickly devoured that there was no chance for a photo!
+We went for the 5 course Menu découverte with (the most generous) wine pairing coz when in Paris, that's what one does... right? The meal started with the most delicious melt-in-the-mouth parmesan and squid ink biscuits but they were so quickly devoured that there was no chance for a photo!
 
 ![](/content/images/2015/07/IMG_1222.JPG)Amuse bouche
 
-![](/content/images/2015/07/IMG_1223.JPG)First entr├®e - Foie gras / Peach condiment / Timut, paired with a glass of Domaine du Tariquet Classic 2014
+![](/content/images/2015/07/IMG_1223.JPG)First entrée - Foie gras / Peach condiment / Timut, paired with a glass of Domaine du Tariquet Classic 2014
 
 ![](/content/images/2015/07/IMG_1225.JPG)
 
-![](/content/images/2015/07/IMG_1226.JPG)Second entr├®e - Pan seared langoustine / Green gnocchis / Black garlic / Almond milk for me, and Tuna / Black sesame seeds / Beetroot for the hubs as he has a shellfish allergy, paired with Domaine de la Meuli├¿re Petit Chablis 2013
+![](/content/images/2015/07/IMG_1226.JPG)Second entrée - Pan seared langoustine / Green gnocchis / Black garlic / Almond milk for me, and Tuna / Black sesame seeds / Beetroot for the hubs as he has a shellfish allergy, paired with Domaine de la Meuli├¿re Petit Chablis 2013
 
 ![](/content/images/2015/07/IMG_1230.JPG)Poisson - Yellow pollock / Artichoke and vinaigrette sauce with pepper/ Courgette / Anchovy, paired with a 2014 Domaine Henri Beurdin Reuilly Blanc
 
