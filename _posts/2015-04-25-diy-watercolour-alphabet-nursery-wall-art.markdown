@@ -18,7 +18,7 @@ I've been having so much fun practising traditional copperplate calligraphy sinc
 
 Mr hubby very thoughtfully booked me in for both workshops with <a href="http://quilllondon.com/" target="_blank">Quill London</a> as my birthday present but they aren't happening for a little while yet, so I decided to just give it a go having done some research on YouTube!
 
-I'm by no means an expert - experts will laugh at my <a href="http://www.ikea.com/gb/en/catalog/products/20193267/?query=M%C3%85LA+Watercolour+box" target="_blank">┬ú6 children's set from Ikea</a> (bargain!) - but what I've found is that brush lettering with watercolour is not half as scary as it seemed. Watercolour is actually quite forgiving. If you've made a mistake, you can go over it quickly. If you've used too much pigment, you can just dilute it with a wet brush. And if it's too watery, you can dab it with a bit of tissue and add more pigment.
+I'm by no means an expert - experts will laugh at my <a href="http://www.ikea.com/gb/en/catalog/products/20193267/?query=M%C3%85LA+Watercolour+box" target="_blank">£6 children's set from Ikea</a> (bargain!) - but what I've found is that brush lettering with watercolour is not half as scary as it seemed. Watercolour is actually quite forgiving. If you've made a mistake, you can go over it quickly. If you've used too much pigment, you can just dilute it with a wet brush. And if it's too watery, you can dab it with a bit of tissue and add more pigment.
 
 **Materials:**
 

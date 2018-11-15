@@ -46,11 +46,11 @@ We have a John Lewis 70% duck down, 30% duck feather, 13.5 tog all seasons duvet
 
 <img src="/content/images/2014/Sep/Tempur-cloud-1.jpg"/><span style="display:block; text-align: left; margin:0; padding: 0; font-size:8pt;">Image credit: <a href="http://uk.tempur.com/" target= "_blank">TEMPUR</a></span>
 
-I've lost count of how many cheap pillows I've had. I think my personal best was a pair for ┬ú3. Fast forward a few years, with student life firmly behind me, I finally invested in a nice pillow! I've used a TEMPUR water pillow in the past, but didn't really get on with it, so I was very pleasantly surprised when I came across the <a href="http://uk.tempur.com/pillows-and-cushions/classic-traditional/cloud-pillow-TB81044M.html" target="_blank">TEMPUR Cloud pillow</a>.
+I've lost count of how many cheap pillows I've had. I think my personal best was a pair for £3. Fast forward a few years, with student life firmly behind me, I finally invested in a nice pillow! I've used a TEMPUR water pillow in the past, but didn't really get on with it, so I was very pleasantly surprised when I came across the <a href="http://uk.tempur.com/pillows-and-cushions/classic-traditional/cloud-pillow-TB81044M.html" target="_blank">TEMPUR Cloud pillow</a>.
  
-It's not cheap (cheapest I've seen is about ┬ú75 online), but it is so aptly named. It is down to personal preference of course, but I can honestly say I've had better sleep in the last couple of months than I have in years. The pillow comfortably moulds around my head and neck, feels super soft, yet provides excellent support, even when sleeping on my side.
+It's not cheap (cheapest I've seen is about £75 online), but it is so aptly named. It is down to personal preference of course, but I can honestly say I've had better sleep in the last couple of months than I have in years. The pillow comfortably moulds around my head and neck, feels super soft, yet provides excellent support, even when sleeping on my side.
  
-For the guest beds, I found these <a href="http://www.houseoffraser.co.uk/Luxury+Hotel+Collection+Touch+of+Silk+pillow+pair/178239268,default,pd.html" target="_blank">Luxury Hotel Collection Touch of Silk pillows</a> in the House of Fraser summer sale. I would never have paid ┬ú100 for a pair, but they were on sale for ┬ú30. The sale is now over, but they are offering 70% off when you buy 2 or more eligible Luxury Hotel Collection products (which probably means they are never worth ┬ú100 anyway). I haven't used them much myself (apart from a cheeky afternoon nap) but they got the mother-in-law's seal of approval. So far so good I'd say!
+For the guest beds, I found these <a href="http://www.houseoffraser.co.uk/Luxury+Hotel+Collection+Touch+of+Silk+pillow+pair/178239268,default,pd.html" target="_blank">Luxury Hotel Collection Touch of Silk pillows</a> in the House of Fraser summer sale. I would never have paid £100 for a pair, but they were on sale for £30. The sale is now over, but they are offering 70% off when you buy 2 or more eligible Luxury Hotel Collection products (which probably means they are never worth £100 anyway). I haven't used them much myself (apart from a cheeky afternoon nap) but they got the mother-in-law's seal of approval. So far so good I'd say!
  
 **3) Bed sheets**
  
@@ -64,12 +64,12 @@ In terms of style, my favourites are hotel style white bed sheets, either with s
  
 ![](/content/images/2014/Sep/collage.png)
  
-1) Dorma 350 TC extra deep fitted sheet, from ┬ú19.99, <a href="http://www.dunelm-mill.com/shop/dorma-350-thread-count-plain-dye-bed-linen-collection-extra-deep-fitted-sheet-284886" target="_blank">Dunelm</a>
-2) Luxury 600 TC deep fitted sheet, from ┬ú18.55, <a href="http://www.soakandsleep.com/luxury-600tc.html" target="_blank">Soak & Sleep</a>
-3) Classic 200 TC duvet cover, from ┬ú20, <a href="http://www.soakandsleep.com/classic-200tc.html" target="_blank">Soak & Sleep</a>
-4) Satin Stripe 400 TC duvet cover, from ┬ú23.45, <a href="http://www.soakandsleep.com/luxury-satin-stripe-cotton.html" target="_blank">Soak & Sleep</a>
-5) Luxury 400 TC Single Row Cord duvet cover, from ┬ú34, <a href="http://www.soakandsleep.com/luxury-single-row-cord.html" target="_blank">Soak & Sleep</a>
-6) Luxury Hotel Collection Satin Stripe 300 TC duvet cover set, from ┬ú150 (don't forget the 70% deal!), <a href="http://www.houseoffraser.co.uk/Luxury+Hotel+Collection+Satin+stripe+duvet+cover+set+in+white/SatinStripeSet,default,pd.html" target="_blank">House of Fraser</a>
+1) Dorma 350 TC extra deep fitted sheet, from £19.99, <a href="http://www.dunelm-mill.com/shop/dorma-350-thread-count-plain-dye-bed-linen-collection-extra-deep-fitted-sheet-284886" target="_blank">Dunelm</a>
+2) Luxury 600 TC deep fitted sheet, from £18.55, <a href="http://www.soakandsleep.com/luxury-600tc.html" target="_blank">Soak & Sleep</a>
+3) Classic 200 TC duvet cover, from £20, <a href="http://www.soakandsleep.com/classic-200tc.html" target="_blank">Soak & Sleep</a>
+4) Satin Stripe 400 TC duvet cover, from £23.45, <a href="http://www.soakandsleep.com/luxury-satin-stripe-cotton.html" target="_blank">Soak & Sleep</a>
+5) Luxury 400 TC Single Row Cord duvet cover, from £34, <a href="http://www.soakandsleep.com/luxury-single-row-cord.html" target="_blank">Soak & Sleep</a>
+6) Luxury Hotel Collection Satin Stripe 300 TC duvet cover set, from £150 (don't forget the 70% deal!), <a href="http://www.houseoffraser.co.uk/Luxury+Hotel+Collection+Satin+stripe+duvet+cover+set+in+white/SatinStripeSet,default,pd.html" target="_blank">House of Fraser</a>
  
 To my untrained hands, the difference in feel between the different brands and thread counts is marginal. Within the Soak & Sleep products, the 400 TC sheets definitely feel softer than the 200 ones, but the 600 ones are almost verging on being too thick. Overall, I'd probably say the Dorma 350 TC sheet feels the silkiest. I have washed everything 3 to 4 times, and so far everything has held up pretty well. With that said, a friend just told me yesterday that she wasn't very pleased with the finishing on her Soak & Sleep sheets, so I guess I'll have to wait a little longer to see!
 

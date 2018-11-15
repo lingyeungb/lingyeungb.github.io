@@ -19,9 +19,9 @@ Here are my favourites! There was also a beautiful large jewellery box, but they
 
 ![](/content/images/2014/Aug/collage1.png)
 
-1) <a href="http://www.oliverbonas.com/homeware/frame_wall_w_grosgrain_ribbon.htm" target="_blank">Hanging frame</a>, from ┬ú10
-2) <a href="http://www.oliverbonas.com/homeware/homeware_favourites/copper/tray_mirrored_copper.htm" target="_blank">Square tray</a>, from ┬ú12
-3) <a href="http://www.oliverbonas.com/homeware/living/bedroom_1/mirror_round_w_chain_large.htm" target="_blank">Round hanging mirror</a>, from ┬ú35
-4) <a href="http://www.oliverbonas.com/homeware/living/bedroom_1/hanging_frame_w_grosgrain_ribbon_large.htm" target="_blank">Hanging frame with ribbon</a>, from ┬ú3.50
-5) <a href="http://www.oliverbonas.com/homeware/living/garden_and_outdoors_1/candle_holder_terrarium_large.htm" target="_blank">Terrarium</a>, from ┬ú28
-6) <a href="http://www.oliverbonas.com/homeware/living/garden_and_outdoors_1/votive_copper_w_glass_base_small.htm" target="_blank">Votive lantern</a>, from ┬ú8.50
+1) <a href="http://www.oliverbonas.com/homeware/frame_wall_w_grosgrain_ribbon.htm" target="_blank">Hanging frame</a>, from £10
+2) <a href="http://www.oliverbonas.com/homeware/homeware_favourites/copper/tray_mirrored_copper.htm" target="_blank">Square tray</a>, from £12
+3) <a href="http://www.oliverbonas.com/homeware/living/bedroom_1/mirror_round_w_chain_large.htm" target="_blank">Round hanging mirror</a>, from £35
+4) <a href="http://www.oliverbonas.com/homeware/living/bedroom_1/hanging_frame_w_grosgrain_ribbon_large.htm" target="_blank">Hanging frame with ribbon</a>, from £3.50
+5) <a href="http://www.oliverbonas.com/homeware/living/garden_and_outdoors_1/candle_holder_terrarium_large.htm" target="_blank">Terrarium</a>, from £28
+6) <a href="http://www.oliverbonas.com/homeware/living/garden_and_outdoors_1/votive_copper_w_glass_base_small.htm" target="_blank">Votive lantern</a>, from £8.50

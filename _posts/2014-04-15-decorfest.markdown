@@ -29,7 +29,7 @@ Here are my top picks:
 
 <img src="/content/images/2014/Apr/Heart-Home-1.jpg"/><span style="display:block; text-align: left; margin:0; padding: 0; font-size:8pt;">Photo credit: <a href="http://hearthomemag.co.uk/" target= "_blank">http://hearthomemag.co.uk/</a></span>
 
-<a href="http://hearthomemag.co.uk/" target= "_blank">Heart Home Magazine</a> is the UK's leading fully digital publication on interiors and lifestyle. The web version is free and readers can shop directly from the pages as each product featured has a direct link to its online shop. They now also have an iPad version. At ┬ú2.99 per issue, you get to read all the features from the 3 upcoming monthly magazines before they are published!
+<a href="http://hearthomemag.co.uk/" target= "_blank">Heart Home Magazine</a> is the UK's leading fully digital publication on interiors and lifestyle. The web version is free and readers can shop directly from the pages as each product featured has a direct link to its online shop. They now also have an iPad version. At £2.99 per issue, you get to read all the features from the 3 upcoming monthly magazines before they are published!
 
 4) Up In My Grill
 

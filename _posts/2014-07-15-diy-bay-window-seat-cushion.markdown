@@ -10,7 +10,7 @@ tags:
 
 ![](/content/images/2014/Jul/IMG_2397.JPG)
 
-Window seat cushions turned out to be one of those things that shocked me in terms of how expensive they are! The cheapest quote I got was over ┬ú200 excluding fabric (the previous owners spent ┬ú600 on theirs...)! So in true ling yeung b spirit, I decided to make my own, without a sewing machine. 
+Window seat cushions turned out to be one of those things that shocked me in terms of how expensive they are! The cheapest quote I got was over £200 excluding fabric (the previous owners spent £600 on theirs...)! So in true ling yeung b spirit, I decided to make my own, without a sewing machine. 
 
 It was a bit of a trial and error experience, and I sort of made it up as I went along. I'm sure there are many ways to do this (better), but here's how I made mine...
 

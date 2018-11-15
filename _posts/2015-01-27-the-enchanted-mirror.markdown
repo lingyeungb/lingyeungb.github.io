@@ -56,6 +56,6 @@ And they lived happily ever after.
 
 The End.
 
-If you think you're brave enough to take on this challenge, gather your most trusted advisors! <a href="http://www.inthehiddencity.com/london/the-enchanted-mirror" target="_blank">The Enchanted Mirror</a> trail, organised by <a href="http://www.inthehiddencity.com/" target="_blank">Hidden City</a>, has been extended to run until 11th February (although the price for a team of up to four people has gone up to ┬ú60 since we went). Not available before then, or don't live in London? Fear not, they have a variety of <a href="http://www.inthehiddencity.com/choose-a-hunt/" target="_blank">other trails</a>, including some in Brighton, Manchester and York!
+If you think you're brave enough to take on this challenge, gather your most trusted advisors! <a href="http://www.inthehiddencity.com/london/the-enchanted-mirror" target="_blank">The Enchanted Mirror</a> trail, organised by <a href="http://www.inthehiddencity.com/" target="_blank">Hidden City</a>, has been extended to run until 11th February (although the price for a team of up to four people has gone up to £60 since we went). Not available before then, or don't live in London? Fear not, they have a variety of <a href="http://www.inthehiddencity.com/choose-a-hunt/" target="_blank">other trails</a>, including some in Brighton, Manchester and York!
 
 

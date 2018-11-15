@@ -70,9 +70,9 @@ And that's pretty much it! Just keep pinning hydrangeas onto the wreath until yo
 
 ![](/content/images/2014/11/_MG_3889.JPG)
 
-I already had a straw wreath (you can easily get one for a couple of quid) so the only cost was ┬ú10 for the hydrangeas that I bought from <a href="http://www.lingyeungb.com/sunday-blooms/" target="_blank">Columbia Road Flower Market</a>, plus an hour's effort.
+I already had a straw wreath (you can easily get one for a couple of quid) so the only cost was £10 for the hydrangeas that I bought from <a href="http://www.lingyeungb.com/sunday-blooms/" target="_blank">Columbia Road Flower Market</a>, plus an hour's effort.
 
-Of course I'm biased but I think it looks just as good as this <a href="https://tregothnan.co.uk/christmas-shop/wreaths/hydrangea-wreath.php" target="_blank">┬ú55 version</a>...?!
+Of course I'm biased but I think it looks just as good as this <a href="https://tregothnan.co.uk/christmas-shop/wreaths/hydrangea-wreath.php" target="_blank">£55 version</a>...?!
 
 What do you think? x
 

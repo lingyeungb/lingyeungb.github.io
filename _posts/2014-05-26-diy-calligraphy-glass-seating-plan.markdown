@@ -11,14 +11,14 @@ tags:
 
 <img src="/content/images/2014/May/0305-LilJimmyDorsetWedding.jpg"/><span style="display:block; text-align: left; margin:0; padding: 0; font-size:8pt;">Image credit: <a href="http://www.arj-photo.co.uk/" target= "_blank">ARJ Photography</a></span>
 
-I have a thing for oversized mirrors, so I really wanted a seating plan written onto an ornate mirror for our UK wedding. I contacted a few calligraphers and the quotes came back at about ┬ú200 for 110 names, and that's not taking into account the mirror that would cost at least ┬ú200-┬ú300! Although I do (often) have moments of madness when it comes to spending money, I wasn't prepared to spend ┬ú500 on a seating plan. Of course I would have kept the mirror, but the ┬ú200 would still have been a sunk cost...
+I have a thing for oversized mirrors, so I really wanted a seating plan written onto an ornate mirror for our UK wedding. I contacted a few calligraphers and the quotes came back at about £200 for 110 names, and that's not taking into account the mirror that would cost at least £200-£300! Although I do (often) have moments of madness when it comes to spending money, I wasn't prepared to spend £500 on a seating plan. Of course I would have kept the mirror, but the £200 would still have been a sunk cost...
 
 Naturally, I thought "ah ha! I can do this myself!" but I knew there was no way my OCD self would tolerate my rubbish handwriting or the imperfect alignment. And then I had a lightbulb moment! I could write on glass instead because that way I could trace it over something!
 
 Materials:
 
-* Large picture frame (I used the <a href="http://www.ikea.com/gb/en/catalog/products/50268906/" target="_blank">Ikea Virserum 50x70cm frame</a> which cost ┬ú18)
-* Marker pens (I used the <a href="http://www.posca.com/uk/all-material-markers/pc-1m" target ="_blank">Uni Posca PC-1M and PC-3M marker pens in white</a> at ┬ú2.21 each)
+* Large picture frame (I used the <a href="http://www.ikea.com/gb/en/catalog/products/50268906/" target="_blank">Ikea Virserum 50x70cm frame</a> which cost £18)
+* Marker pens (I used the <a href="http://www.posca.com/uk/all-material-markers/pc-1m" target ="_blank">Uni Posca PC-1M and PC-3M marker pens in white</a> at £2.21 each)
 
 ![](/content/images/2014/May/ppt.jpg)
 
@@ -38,7 +38,7 @@ Step 6: Make sure the top of the glass is clean and grease-free. Trace over with
 
 Step 7: Put the glass back on the frame and secure with the little metal tabs. Be careful not to crack the glass!
 
-And that's it! My ┬ú22.42 seating plan!
+And that's it! My £22.42 seating plan!
 
 <img src="/content/images/2014/May/0307-LilJimmyDorsetWedding.jpg"/><span style="display:block; text-align: left; margin:0; padding: 0; font-size:8pt;">Image credit: <a href="http://www.arj-photo.co.uk/" target= "_blank">ARJ Photography</a></span>
 

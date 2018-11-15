@@ -41,7 +41,7 @@ Step 4: When everything is dry, assemble as per Ikea's manual.
 
 Step 5: Super glue the handles onto each corner of the coffee table. I chose to have the horizontal one on the front, and the vertical one on the back, but that's entirely up to you.
 
-And that's it! A few hours' effort, and you can transform this boring ┬ú45, well, ┬ú83 including all other materials, coffee table
+And that's it! A few hours' effort, and you can transform this boring £45, well, £83 including all other materials, coffee table
 
 ![](/content/images/2014/Jul/vittsjo-1.JPG)
 into this, dare I say, expensive looking beauty!

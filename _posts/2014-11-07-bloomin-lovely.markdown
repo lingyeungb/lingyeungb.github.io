@@ -50,7 +50,7 @@ My fave!!! Ok, one of my faves - hydrangeas!![](/content/images/2014/11/IMG_4079
 
 A little stem broke off but I couldn't bear throwing it away so this happened...![](/content/images/2014/11/IMG_4089.JPG)
 
-I tried to dry hydrangeas a few times before, but never had much success. This time though, I did my research, followed <a href="http://www.bhg.com/gardening/design/projects/how-to-dry-hydrangeas/" target="_blank">these tips</a>, and voila, they turned out beautifully!!! In fact, I'm very tempted to go back this weekend to see if there are more (did I tell you they were an absolute bargain - 4 stems for ┬ú10?) so I can make a dried hydrangea wreath!
+I tried to dry hydrangeas a few times before, but never had much success. This time though, I did my research, followed <a href="http://www.bhg.com/gardening/design/projects/how-to-dry-hydrangeas/" target="_blank">these tips</a>, and voila, they turned out beautifully!!! In fact, I'm very tempted to go back this weekend to see if there are more (did I tell you they were an absolute bargain - 4 stems for £10?) so I can make a dried hydrangea wreath!
 
 ![](/content/images/2014/11/IMG_4150.JPG)
 
