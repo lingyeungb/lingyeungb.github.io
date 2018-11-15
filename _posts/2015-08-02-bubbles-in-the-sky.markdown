@@ -32,7 +32,7 @@ After finishing our pre-dinner bubbles, we headed downstairs to the restaurant o
 
 <img src="/content/images/2015/08/collage2.jpg"/><span style="display:block; text-align: left; margin:0; padding: 0; font-size:8pt;">Starter: smoked duck, white peach, candied walnut, rocket | seared scallop, strawberry, basil
 Main: butter roasted monkfish, Heritage carrot, crisp bone marrow, Alsace bacon foam | Gressingham duck breast, raspberry, tarragon, girolle
-Dessert: cherry "Bakewell" salted almond ice cream | lemon cheesecake, strawberry and basil sorbet</a></span>
+Dessert: cherry "Bakewell" salted almond ice cream | lemon cheesecake, strawberry and basil sorbet</span>
 
 Food at landmark restaurants is often hit and miss, but we were both pleasantly surprised. I'm not normally a huge dessert fan but that strawberry and basil sorbet was divine! In fact, I think I'm going to have to try and recreate it at some point!
 
